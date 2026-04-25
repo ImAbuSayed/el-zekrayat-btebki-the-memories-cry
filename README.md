@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> في عيوني شوق ونار تناديك
+> كل دقة بقلبي تحلم بيك
+> يا حبيبي خليك دايماً معاي
+> أنت منايا ونور عيناي
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
